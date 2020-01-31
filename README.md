@@ -1,1 +1,0 @@
-# Hackathon-Climate-Project
